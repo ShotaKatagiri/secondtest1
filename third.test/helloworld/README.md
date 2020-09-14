@@ -3,3 +3,4 @@
 あいうえお
 aiikja
 lkako
+kikaajnaj
