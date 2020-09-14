@@ -2,3 +2,4 @@
 ##braA
 あいうえお
 aiikja
+lkako
